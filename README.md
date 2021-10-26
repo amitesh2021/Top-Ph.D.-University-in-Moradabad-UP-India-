@@ -112,7 +112,7 @@ The institute offers Ph.D. in the following areas –
 
 •        Doctor of Philosophy (Ph.D.) in Allied health Science 
 
-Career Prospects
+<b>Career Prospects</b>
 
 Ph.D. is the highest degree achieved by an individual. With a research degree, such individuals are experts in their domain who can provide necessary insights to the industry. These qualities make them highly employable in the R & D departments of tech companies. These individuals handle new product discovery making us the Top Ph.D. University in Moradabad.
  
