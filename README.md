@@ -10,11 +10,11 @@ At SVU, they firmly based the pillars of research on innovation & the creation o
 
 The founders being deeply attached to their roots have created an environment where they challenge young minds for research making us the Top Ph.D. University in Uttar Pradesh (UP). 
 
-The students throughout their research have easy access to the college labs & library to develop prototypes that will help humanity in the future. The latest machines installed at the laboratory mitigate the problems faced by researchers & the able guides ensure they scrutinize the research topic. The AC seminar & conference rooms provide the perfect atmosphere where researchers defend their thesis topic making us the Top Ph.D. Colleges in India.
+The students throughout their research have easy access to the college labs & library to develop prototypes that will help humanity in the future. The latest machines installed at the laboratory mitigate the problems faced by researchers & the able guides ensure they scrutinize the research topic. The AC seminar & conference rooms provide the perfect atmosphere where researchers defend their thesis topic making us the <a href="https://svu.edu.in/phd-admission.php"> Top Ph.D. Colleges in India </a>.
 
 The faculty are Doctorates with years of teaching & research experience. Their experience comes in handy with the budding researchers. They guide & motivate researchers to endure till they achieve their aim. The faculty goes out of the way to enable students to succeed in their goal by providing notes, dissertations & guidance making us the Top Ph.D. University in India.
 
-The college library has over 3000 books, journals & e-resources that aid in ethical research. The dedicated computer lab has 100 machines with Wi-Fi & printer that enable research in key areas with ease & dedication. The teaching pedagogy at SVU allows students to take part in debates, discussions, seminars, role plays & field visits. These activities help disseminate knowledge, enabling core research, making us the Top Ph.D. Colleges in Moradabad.
+The college library has over 3000 books, journals & e-resources that aid in ethical research. The dedicated computer lab has 100 machines with Wi-Fi & printer that enable research in key areas with ease & dedication. The teaching pedagogy at SVU allows students to take part in debates, discussions, seminars, role plays & field visits. These activities help disseminate knowledge, enabling core research, making us the <a href="https://svu.edu.in/phd-admission.php"> Top Ph.D. Colleges in Moradabad </a>.
 
 Courses Offered
 
