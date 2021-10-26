@@ -114,17 +114,27 @@ The institute offers Ph.D. in the following areas –
 
 Career Prospects
 
- Ph.D. is the highest degree achieved by an individual. With a research degree, such individuals are experts in their domain who can provide necessary insights to the industry. These qualities make them highly employable in the R & D departments of tech companies. These individuals handle new product discovery making us the Top Ph.D. University in Moradabad.
+Ph.D. is the highest degree achieved by an individual. With a research degree, such individuals are experts in their domain who can provide necessary insights to the industry. These qualities make them highly employable in the R & D departments of tech companies. These individuals handle new product discovery making us the Top Ph.D. University in Moradabad.
  
  
-Professionals armed with a Ph.D. can find lucrative employment as – 
+Professionals armed with a Ph.D. can find lucrative employment as –
+
 •        University professor
+
 •        Academic Writer
+
 •        College Principal
+
 •        Key skills Trainer
+
 •        Technology consultant
+
 •        R & D Consultant
+
 •        Vice-Chancellor
+
 •        Research director
+
 •        Onboard consultant
+
 •        Chief Technology Officer
