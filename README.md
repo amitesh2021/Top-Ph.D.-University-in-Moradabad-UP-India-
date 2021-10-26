@@ -16,7 +16,7 @@ The faculty are Doctorates with years of teaching & research experience. Their e
 
 The college library has over 3000 books, journals & e-resources that aid in ethical research. The dedicated computer lab has 100 machines with Wi-Fi & printer that enable research in key areas with ease & dedication. The teaching pedagogy at SVU allows students to take part in debates, discussions, seminars, role plays & field visits. These activities help disseminate knowledge, enabling core research, making us the <a href="https://svu.edu.in/phd-admission.php"> Top Ph.D. Colleges in Moradabad </a>.
 
-Courses Offered
+<b>Courses Offered</b>
 
 The institute offers Ph.D. in the following areas –
 
