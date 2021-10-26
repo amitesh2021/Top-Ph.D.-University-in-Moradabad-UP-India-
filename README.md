@@ -6,7 +6,7 @@ The Institute has labs & workshops studded with the latest equipment that enable
 
 Shri Venkateshwara University believes that research is even more important in these times of COVID-19. Learning to conduct research is an essential part of learning about life. We require research not only for students and academics but for all professionals and non-professionals alike. It is also important for budding writers, actors, and journalists.
 
-At SVU, they firmly based the pillars of research on innovation & the creation of modules that help society at large. We endeavor to do research on technologies that ease masses from hardships & provide them a humble living. No research is fruitful if it’s not doing well for society. With this mission, the College has high-tech labs, workshops & libraries that instigate research for a common good making us the Top Ph.D. Colleges in Uttar Pradesh (UP).
+At SVU, they firmly based the pillars of research on innovation & the creation of modules that help society at large. We endeavor to do research on technologies that ease masses from hardships & provide them a humble living. No research is fruitful if it’s not doing well for society. With this mission, the College has high-tech labs, workshops & libraries that instigate research for a common good making us the <a href="https://svu.edu.in"> Top Ph.D. Colleges in Uttar Pradesh (UP) </a>.
 
 The founders being deeply attached to their roots have created an environment where they challenge young minds for research making us the Top Ph.D. University in Uttar Pradesh (UP). 
 
